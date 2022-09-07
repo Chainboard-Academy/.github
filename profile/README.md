@@ -1,2 +1,2 @@
-Welcome to Chainboad Academy! 
+Welcome to Chainboard Academy! 
 
